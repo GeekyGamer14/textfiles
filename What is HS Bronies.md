@@ -5,6 +5,10 @@
 
 It was created at a HS Hackers meetup by one of the members there. This meetup was serious. Very serious. Yeah.
 
+Well... I was there. Not telling you who created it.
+
+You should be able to look that up yourself.
+
 Anyways, um...
 
 [Karl](https://www.facebook.com/karl.coelho) and I shitposted a lot.
